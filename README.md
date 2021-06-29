@@ -1,6 +1,6 @@
 # Jogo Genius 🎧
 
-> **Link para o [Jogo](https://scratch.mit.edu/projects/534861853/) no Scratch.😺** 
+> **Link para o [Jogo](https://scratch.mit.edu/projects/516115693) no Scratch.😺** 
 
 ## Como Jogar?🎮
 
